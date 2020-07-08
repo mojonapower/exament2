@@ -1,5 +1,4 @@
 # EXAMEN TÓPICOS 2 
 
-## Comenzando 🚀
 
-**Estudiante** : Macarena Rebolledo Valdivia
+**Estudiante** : Macarena Rebolledo Valdivia 🚀
